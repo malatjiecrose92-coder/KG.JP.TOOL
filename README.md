@@ -1,5 +1,5 @@
 # KG.JP.TOOL
-TOOL BYPASS FULL KG LOCKED (SAMSUNG) Android 12-13, BYPASS MDM XIAOMI, MORE.
+TOOL BYPASS FULL KG LOCKED (SAMSUNG) Android 12-13, BYPASS MDM XIAOMI, MORE.PAYJOY REMOVAL
 -------------------------------------------------------------
 
 **[OBTENER!!](https://josephnc.gumroad.com/l/kgtool)**
